@@ -1,2 +1,5 @@
 ![different-types-of-software-coderus-branded-image-1920x9999 (2)](https://user-images.githubusercontent.com/78478397/202360561-e4f93a50-5878-4e13-b5b1-88f3ca09f57b.jpg)
 ![download (1)](https://user-images.githubusercontent.com/78478397/202859415-55c1f4fc-e0e2-4de9-b9f3-fd9292cfb077.png)
+![172](https://user-images.githubusercontent.com/78478397/203914402-6b534242-3a3b-441e-9453-b7cc049d8493.gif)
+![think-emoji-unscreen](https://user-images.githubusercontent.com/78478397/203914411-3554f40f-d742-4c32-8251-87224d8a55ab.gif)
+![20-205471_yellow-produce-smile-thinking-emoji-meme-hd-png-removebg-preview](https://user-images.githubusercontent.com/78478397/203914412-97b998d7-c1d7-4bb9-adea-b99db5507bd1.png)
