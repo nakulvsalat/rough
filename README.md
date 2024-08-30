@@ -5,3 +5,4 @@
 ![20-205471_yellow-produce-smile-thinking-emoji-meme-hd-png-removebg-preview](https://user-images.githubusercontent.com/78478397/203914412-97b998d7-c1d7-4bb9-adea-b99db5507bd1.png)
 ![image](https://user-images.githubusercontent.com/78478397/226855280-30ce4bd4-6846-4a7d-9e3f-161693a66f8c.png)
 ![image](https://user-images.githubusercontent.com/78478397/226855332-4cd06c0d-e2e8-491e-b9d8-6be31e5e0e40.png)
+![IRM-energy-logo-removebg-preview](https://github.com/user-attachments/assets/236bc828-b69c-4e79-b467-91806f7b1a85)
