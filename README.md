@@ -6,3 +6,4 @@
 ![image](https://user-images.githubusercontent.com/78478397/226855280-30ce4bd4-6846-4a7d-9e3f-161693a66f8c.png)
 ![image](https://user-images.githubusercontent.com/78478397/226855332-4cd06c0d-e2e8-491e-b9d8-6be31e5e0e40.png)
 ![IRM-energy-logo-removebg-preview](https://github.com/user-attachments/assets/236bc828-b69c-4e79-b467-91806f7b1a85)
+<img width="1600" height="1600" alt="WhatsApp Image 2026-03-19 at 11 36 33 AM_waifu2x_noise1_scale2x" src="https://github.com/user-attachments/assets/664633a2-664b-4447-9310-14c58216a56a" />
